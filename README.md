@@ -1,4 +1,4 @@
-## Hi there, I'm Tiffany 👋🌱
+## Hi there, I'm Tiffany 👋
 
 ### 2nd year at UBC
 
